@@ -28,8 +28,7 @@
 
 興味がある方は、以下の方法で参加申し込みを行ってください。
 
-- **メール**: info@digitaldreamers.com
-- **公式ウェブサイト**: www.digitaldreamers.com
+- **メール**: da.kou.9981@gmail.com
 
 ### 私たちのビジョン
 
